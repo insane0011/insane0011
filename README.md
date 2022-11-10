@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **ANY U CAN ASK ME**
 
-- 📫 How to reach me **https://discord.gg/user/699210651536457728**
+- 📫 How to reach me **https://discord.com/users/699210651536457728**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
